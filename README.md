@@ -1,1 +1,1 @@
-Site focado na divulgação de serviços.
+Esse site tem como objetivo fazer a divulgação do trabalho de uma depiladora
